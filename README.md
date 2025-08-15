@@ -1,7 +1,5 @@
 
 
-![](https://media1.tenor.com/m/XpTrJ-r3trEAAAAC/every-day-host-koichi.gif)
-
 
 <!--
 **powcard/powcard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
