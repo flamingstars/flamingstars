@@ -1,7 +1,4 @@
-did you find a four leaf clover   
-did you hope that i'd come over   
-here i am, and i might never leave again   
-
+i never thought that i would hear you say that i'm who you hold dear more than anyone else, or at least not in the same way
 
 
 <!--
